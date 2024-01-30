@@ -1,16 +1,16 @@
-### Hi there 👋
+### Hi there 👋, Hi, cleverwolfano here!
+#### Waiting for opportunities...
+![Waiting for opportunities...](https://tenor.com/view/anime-aesthetic-city-train-moon-gif-17915550)
 
-<!--
-**cleverwolfano/cleverwolfano** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Γεια σας! How's it going? I'm cleverwolfano. I'm starting my programming and robotics journey. I'm currently learning python, expanding my Luau knowledge and working hard on modelling software. While of course completing, and even surpassing my academic requirements.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+Skills: Lua / Autodesk Fusion 360 / Blender
+
+- 🔭 I’m currently working on this page. 
+
+
+
+
