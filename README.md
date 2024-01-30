@@ -1,6 +1,6 @@
 ### 👋 Hi, cleverwolfano here!
 #### Student with big aspirations
-Γεια σας! How's it going? I'm cleverwolfano. I'm starting my programming and robotics journey. I'm currently learning Python, expanding my Luau knowledge and working hard on modelling software. While of course completing, and even surpassing my academic requirements. I'm also a Discord moderator working daily to ensure member satisfaction, currently handled over 1500 cases! 
+Γεια σας! How's it going? I'm cleverwolfano. I'm starting my programming and robotics journey. I'm currently learning Python, expanding my Luau knowledge and working hard on modelling software. While of course completing, and even surpassing my academic requirements. I'm also a Discord moderator working daily to ensure member satisfaction, currently handled over 1500 cases, 850+ tickets, and counting. Contact me for Discord knowledge!
 
 *Also looking for opportunities to learn! If you have any, please shoot me a DM.*
 
