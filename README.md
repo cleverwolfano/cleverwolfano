@@ -9,7 +9,7 @@ Despite my Greek nationality, I'm an international resident. Having relocated 4 
 
 **Working on:** 
 
-  Luau / Python / Disnake / Autodesk Fusion 360 / Blender
+  Luau / Python / Disnake / Autodesk Fusion 360 / Blender / 3D Printing - (Ender 3 V2)
 
 - 🔭 I'm always expanding this page!
 
