@@ -17,6 +17,6 @@ Autodesk Fusion 360 / Blender
 
 **Contact me on Discord:** @cleverwolfano
 
-W*P* Development
-Project Test
+- W*P* Development
+- Project Test
 
