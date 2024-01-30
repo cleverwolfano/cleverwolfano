@@ -4,7 +4,7 @@
 
 *Also looking for opportunities to learn! If you have any, please shoot me a DM.*
 
-Although my Greek nationality, I'm also an international resident. Having relocated over 5 times over 3 different continents. I speak 3 languages fluently while working hard to expand others. Feel free to contact me in any other the languages I speak! 🇬🇷🇬🇧🇪🇸
+Despite my Greek nationality, I'm an international resident. Having relocated 4 times to 3 different continents. I speak 3 languages fluently while working hard to expand others. Feel free to contact me in any other the languages I speak! 🇬🇷🇬🇧🇪🇸
 
 
 **Working on:** 
