@@ -17,5 +17,5 @@ Despite my Greek nationality, I'm an international resident. Having relocated 4 
 **Contact me on Discord:** @cleverwolfano
 
 - W*P* Development
-- Project Test
+- Projects Server
 
